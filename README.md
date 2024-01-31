@@ -1,1 +1,1 @@
-# Buidlers_VIP_2024_ETHDENVER
+# Buidler's VIP Day #2024ETHDENVER
